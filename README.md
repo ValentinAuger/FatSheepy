@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @FatSheepy
-- 💚 I am a 10th grade student who enjoys science, graphics design, programming, and SoundCloud.
-- 📫 My email : fatsheep@bonjourmonde.eu
+- 💚 I am a 12th grade student who enjoys, graphics design, programming, and SoundCloud.
